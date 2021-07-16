@@ -1,1 +1,1 @@
-# rsschool-cv
+https://iwolga2017.github.io/rsschool-cv/cv
