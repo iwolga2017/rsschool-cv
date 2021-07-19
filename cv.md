@@ -13,7 +13,9 @@
         *    Johannes Rau Minsk international educational center, Hotel receptionist
             (2008-2012)
 
-                *    Duties: check-in and checkout of guests, maids and technical staff work coordination, settling issues related to the stay of guests at the hotel;
+                *    Duties: check-in and checkout of guests, 
+                maids and technical staff work coordination, 
+                settling issues related to the stay of guests at the hotel;
 
         *    Aquabel Hotel, Hotel receptionist (2005-2007)
 
