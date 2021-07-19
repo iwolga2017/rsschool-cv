@@ -1,6 +1,7 @@
 # Applicant for  Junior Front-end Developer position
 ## Olga Iwliewa, Minsk, Republic of Belarus
 ## +375 (29) 651-29-97
+### VK [Link to my profile](https://vk.com/id273574449)
 * Work experience:
 
         *    OOO Tracker, Economist (september 2012 - current time)
