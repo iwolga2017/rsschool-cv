@@ -1,1 +1,1 @@
-https://iwolga2017.github.io/rsschool-cv/cv
+https://iwolga2017.github.io/rsschool-cv/
